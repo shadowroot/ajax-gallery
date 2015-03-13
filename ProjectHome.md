@@ -1,0 +1,1 @@
+I'd like to help anybody who need's I think nice and fast gallery with editor.
